@@ -9,6 +9,7 @@
 ⋅°₊ • ୨୧ ‧₊° ⋅A few things about me!!⋅°₊ • ୨୧ ‧₊° ⋅
 
 ‧₊˚♪ 𝄞₊˚⊹I love to draw in my free time I been playing genshin sence 2022(˶ᵔ ᵕ ᵔ˶)!!‧₊˚♪ 𝄞₊˚⊹
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.I play a few other games like:. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 .☘︎ ݁˖Sun Haven, Path of Titans, Isle, Minecraft, Pony Town and lots of other things!!.☘︎ ݁˖
