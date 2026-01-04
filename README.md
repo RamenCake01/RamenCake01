@@ -9,7 +9,6 @@
 ⋅°₊ • ୨୧ ‧₊° ⋅A few things about me!!⋅°₊ • ୨୧ ‧₊° ⋅
 
 ‧₊˚♪ 𝄞₊˚⊹I love to draw in my free time I been playing genshin sence 2022(˶ᵔ ᵕ ᵔ˶)!!‧₊˚♪ 𝄞₊˚⊹
-
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.I play a few other games like:. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 .☘︎ ݁˖Sun Haven, Path of Titans, Isle, Minecraft and lots of other things!!.☘︎ ݁˖
@@ -17,3 +16,5 @@
 <img width="640" height="60" alt="image" src="https://github.com/user-attachments/assets/8d54cb73-7a5b-4c76-8eaa-7a0ab9497dce" />
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/277fee65-3a4b-41b9-8271-d9fb81b55d8f" />
 <img width="640" height="60" alt="image" src="https://github.com/user-attachments/assets/fbee29d7-ff2a-4a2a-93aa-fa2d917811ea" />
+
+°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･And you can call me Ramen!!°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
